@@ -1,3 +1,1 @@
-전자기기랑 자동차 좋아하는 안드로이드 안득임미다 / 08 / ♂ / #80ff80
-자캐설정: iris-buttercup-ed7.notion.site/fe175d28dced4c…
-P.이온
+
